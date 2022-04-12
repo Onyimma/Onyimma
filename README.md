@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Onyimma
-- 👀 I’m interested in ... coding
+- 👀 I’m interested in ... Software programing
 - 🌱 I’m currently learning ... coding
 - 💞️ I’m looking to collaborate on ... software programing
 - 📫 How to reach me ... onyinyechichidimma26@gmail.com
